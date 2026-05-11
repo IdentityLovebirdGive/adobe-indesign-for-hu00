@@ -1,4 +1,4 @@
-# 
+# Adobe InDesign for macOS ultimate Brush Pack - vector export and real-time preview is the best Adobe InDesign for macOS brush, featuring vector export and real-time preview. Safe,
 
 
 
